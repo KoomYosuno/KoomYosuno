@@ -1,5 +1,5 @@
 - 👀 : Kawaii Desu ~~
-- 
+- <a href="https://github.com">yedhod</a>
 - 👋 : Ohayo~ I AM yosuno コブ
 - 
 - 🌱 : I AM Website Developer & Weeb Otaku
